@@ -10,4 +10,3 @@
 - 💬 Ask me about data structures ,algorithims ,sports or any tech related stuff 
 - 📫 How to reach me: Mail me at : heytatha42@gmail.com
 - ⚡ Fun fact: Ping me up if you want to talk about space.
--->
